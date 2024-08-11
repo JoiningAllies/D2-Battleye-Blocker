@@ -1,4 +1,5 @@
-# No individual has rights to post this link without properly advertising the [Velocity DMA](https://www.elitepvpers.com/forum/destiny-trading/5232313-d2-undetected-slotted-senpai-velocity-daily-lifetime-24-7-support.html) with the posting of this link as the initial purpose of this program is to run along side the Velocity DMA. 
+# No individual has rights to post this link without properly advertising the [Velocity DMA](https://www.elitepvpers.com/forum/destiny-trading/5232313-d2-undetected-slotted-senpai-velocity-daily-lifetime-24-7-support.html).
+## The initial purpose of this program is to run along side the Velocity DMA. 
 
 # Simple D2 Battleye Report Remover And In/Out Blocker
 
